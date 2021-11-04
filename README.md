@@ -1,4 +1,4 @@
-👋 Hi, I’m [@kunalpawar08essentia](https://github.com/kunalpawar7788)
+👋 Hi, I’m [@kunalpawar7788](https://github.com/kunalpawar7788)
 
 # Full Stack Developer 
 
